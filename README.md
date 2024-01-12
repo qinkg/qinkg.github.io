@@ -1,1 +1,0 @@
-# qinkg.github.io
